@@ -8,6 +8,9 @@ And I also love **ANIME, ACG SONGS, etc**.
 But I'm not so **open** in the **real world**.  
 So it's good to know you in the **internet**.  
 Let's keep the friendships forever! ❤ 
+
+<img align="right" src="https://github-readme-stats.vercel.app/api/top-langs/?username=SuzukiHonoka&layout=compact&langs_count=20" />
+
 # PROGRAMMING SKILLS
 I self studied some programming languages and still working on some of it.  
 I usually write the **backends**.  
