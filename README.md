@@ -1,5 +1,3 @@
-<img align="right" src="https://github-readme-stats.vercel.app/api?username=Suzukihonoka&show_icons=true" />
-
 ### Hi there, it's Suzukihonoka~ 👋   
 My friends often call me **Starx** in the workarounds.  
 # IMAGINATIN
@@ -8,8 +6,6 @@ And I also love **ANIME, ACG SONGS, etc**.
 But I'm not so **open** in the **real world**.  
 So it's good to know you in the **internet**.  
 Let's keep the friendships forever! ❤ 
-
-<img align="right" src="https://github-readme-stats.vercel.app/api/top-langs/?username=SuzukiHonoka&layout=compact&langs_count=20" />
 
 # PROGRAMMING SKILLS
 I self studied some programming languages and still working on some of it.  
