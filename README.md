@@ -25,4 +25,4 @@ I don't provide the details in **here**.
 > I only pay a attention to the things that I have to care or the priority.  
 > I care about the one that cares about me.  
 > I don't initiatively fit in to the any group that I am not interested in.  
-> I might be happy if you company me with your heart for let me not alone.
+> I might be happy if you accompany me with your heart for let me not alone.
