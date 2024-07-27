@@ -1,26 +1,26 @@
-### Hi there, it's Suzukihonoka~ 👋   
+### Hi there, it's Suzukihonoka~ 👋  
 My friends often call me **Starx**.  
 
-# IMAGINATIN
-I'm very keen on discovery the high-tech new things. I also love **ANIME, ACG SONGS, etc**, but I'm not so **open** in the **real world**.  
-So it's good to know you in the **internet**.  
-Let's keep the friendships forever! ❤ 
+# IMAGINATION
+I'm very keen on discovering high-tech innovations. I also love **anime, ACG songs**, and similar interests, though I'm not very **open** in the **real world**.  
+So it's great to know you on the **internet**.  
+Let's stay friends forever! ❤ 
 
 # PROGRAMMING SKILLS
-I self studied some programming languages and still working on some of it.  
-I usually write the **backends**.  
+I am self-taught in several programming languages and am still working on mastering some of them.  
+I usually work on the **backends**.  
 
 # CONTACT ME
-If you find me somewhere, then you may add me as your friend.  
-I don't provide any details in **here**.
+If you find me somewhere, feel free to add me as a friend.  
+I don't provide any contact details **here**.
 - Github
 - Bilibili
 - QQ
-- Wechat **(generally not show up)**
-- Telegram **(generally not show up)**
+- WeChat **(generally not active)**
+- Telegram **(generally not active)**
 - LINE
 
-> I only pay a attention to the things that I have to care or the priority.  
-> I care about the one who cares about me.  
-> I don't initiatively fit in to any group that I am not interested in.  
-> I'll be happy if you accompany me with your heart for let me not alone.
+> I only pay attention to things that I need to prioritize.  
+> I care about those who care about me.  
+> I don't actively fit into groups that don't interest me.  
+> I'll be happy if you keep me company with your heart, so I don't feel alone.
